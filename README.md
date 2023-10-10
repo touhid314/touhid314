@@ -1,4 +1,4 @@
-Finalist, 2023 IEEE Video and image processing cup(final result yet to be published) [https://signalprocessingsociety.org/community-involvement/video-image-processing-cup]
+First runner-up, 2023 IEEE Video and image processing cup [https://signalprocessingsociety.org/community-involvement/video-image-processing-cup]
 
 
 
